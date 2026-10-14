@@ -1,0 +1,2 @@
+# premium-embroidery-gold-001-goldwork-embroidery-metal-th
+Tired of piecing together scattered tutorials and outdated guides to learn goldwork embroidery? This Hub centralizes everything you need to master metal thread techniques with clarity and confidence.  This digital resource solves the fragmentation of goldwork knowledge by providing a single, modern, and curated collection of techniques, patterns, a
